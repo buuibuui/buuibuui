@@ -2,5 +2,4 @@
 - 👩‍🎓 Third year of university
 
 
-Please take a look at 👇
-http://www.shinkan-dokkyo.com/
+Please take a look at 👉 http://www.shinkan-dokkyo.com/

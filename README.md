@@ -8,9 +8,9 @@
 
 Please look ⬇️⬇️⬇️
 
-(http://www.shinkan-dokkyo.com/)
+[大学新歓HP](http://www.shinkan-dokkyo.com/)
 
-Qiita：（https://qiita.com/buuibuui）
+[Qiita](https://qiita.com/buuibuui)
 
 I did everything from design to build.
 

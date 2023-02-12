@@ -6,7 +6,11 @@
 - 🫶 I also like to design
 
 
-Please look 👉👉👉 (http://www.shinkan-dokkyo.com/)
+Please look ⬇️⬇️⬇️
+
+(http://www.shinkan-dokkyo.com/)
+
+Qiita：　（https://qiita.com/buuibuui）
 
 I did everything from design to build.
 

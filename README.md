@@ -1,13 +1,3 @@
-# Hi, I’m ibuki 👋
-
-## :white_heart:ABOUT ME
-- 👩‍🎓 Third year of university
-- 🛴 Studying programming since 2020
-- 🫶 I also like to design
-
-
-Please look ⬇️⬇️⬇️
-
 [大学新歓HP](http://www.shinkan-dokkyo.com/)
 
 [Qiita](https://qiita.com/buuibuui)
